@@ -35,27 +35,45 @@ Nombre del archibo:pr 1_2Do_Practica de funsiones-Ruvalcaba Valverde Mguel Angel
 ![image](https://github.com/user-attachments/assets/f087bd43-e0f4-4a02-85b0-19a23c2ffa80)
 
 # punto 8
+![image](https://github.com/user-attachments/assets/39700870-81fa-4570-92f6-734adf3ba0c2)
 
 # punto 9
+![image](https://github.com/user-attachments/assets/ce52198b-7331-46b5-96aa-46ff6288d3de)
 
 # punto 10
+![image](https://github.com/user-attachments/assets/ab8a60cb-861d-4df6-afa0-b5f07eff243b)
 
 # punto 11
+![image](https://github.com/user-attachments/assets/6dc21147-1412-4f5f-aea4-d683703c42ad)
 
 # punto 12
+![image](https://github.com/user-attachments/assets/afbbfa51-e8c3-40d7-8f01-8007f69e1a53)
+![image](https://github.com/user-attachments/assets/6a04b97e-1b8c-41ba-9f1d-9625c70680f3)
 
 # punto 13
+![image](https://github.com/user-attachments/assets/6a266132-0ab5-4f2c-83f9-95286a324f62)
+![image](https://github.com/user-attachments/assets/e74bf478-6a55-46b4-8f2b-6e8cbcba51d6)
 
 # punto 14
+![image](https://github.com/user-attachments/assets/5bdd0088-c2f2-4a64-9401-cf728c604252)
+![image](https://github.com/user-attachments/assets/f20626e2-2063-4d0f-9838-cbb71bf08324)
 
 # punto 15
+![image](https://github.com/user-attachments/assets/914e7c01-d94f-4c23-bab9-bdda94672d69)
+![image](https://github.com/user-attachments/assets/f77f6658-4989-4f5d-86aa-7d407ae449a4)
 
 # punto 16
+![image](https://github.com/user-attachments/assets/56e2a55c-e4f7-4545-a130-b732cffa0f5e)
+![image](https://github.com/user-attachments/assets/380c6a0f-7b23-4fba-a68e-d72ceafe597f)
 
 # punto 17
+![image](https://github.com/user-attachments/assets/de0d6374-9854-47fc-9997-5683476b5b5c)
 
 # punto 18
+![image](https://github.com/user-attachments/assets/42bae4e9-cd62-4f6f-8b48-88ff245b005c)
 
 # punto 19
+![image](https://github.com/user-attachments/assets/e8376442-8156-4e58-9aa1-5b2a405376dd)
+![image](https://github.com/user-attachments/assets/072bc4c7-1a15-4ee2-8f8f-aca9012eafd3)
 
 # punto 20

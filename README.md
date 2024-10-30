@@ -77,3 +77,6 @@ Nombre del archibo:pr 1_2Do_Practica de funsiones-Ruvalcaba Valverde Mguel Angel
 ![image](https://github.com/user-attachments/assets/072bc4c7-1a15-4ee2-8f8f-aca9012eafd3)
 
 # punto 20
+![image](https://github.com/user-attachments/assets/ac578751-2671-4218-a5a9-31daa8ab0c78)
+![image](https://github.com/user-attachments/assets/d5360009-8718-491e-bf65-5bed4bfbdf82)
+
